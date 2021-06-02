@@ -13,6 +13,8 @@ What we can suggest is that you **enroll next semester** **when you have less un
 **We look forward to seeing you on Spring 2022!**
 
 All the best,
+
 Gab Reyes
+
 Cybersecurity Course Head
 
