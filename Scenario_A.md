@@ -1,7 +1,7 @@
 # Scenario A
 Hi **Raju**,
 
-Thank you for reaching out regarding this matter. We hope you're doing well.
+Thank you for reaching out to us regarding this matter. We hope you're doing well.
 
 Upon checking our record of the meeting, dated **June 26, 2021**, you were only present for a total of **10 minutes**.
 
